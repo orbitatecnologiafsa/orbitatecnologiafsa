@@ -34,10 +34,6 @@
 - 📸 Instagram: [@orbitatecnologiafsa](https://instagram.com/orbitatecnologiafsa)
 - 📍 Feira de Santana - BA
 
-### 😄 Pronomes:
-- 🙋‍♀️ Ela/Dela (Thaiany Santana, CEO)
-- 👩🏽‍💻 Nós/Equipe
-
 ### ⚡ Curiosidade divertida:
 > Começamos com um quadro branco e uma ideia ousada! Hoje, estamos em mais de **20 cidades da Bahia**, transformando negócios com tecnologia e criatividade. 🌎💡
 
